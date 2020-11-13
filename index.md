@@ -5,7 +5,7 @@
 ### and what not
 
 
-[go to another website](https://www.brianloveless.com)
+[go to  my other website](https://www.brianloveless.com)
 
 
 
