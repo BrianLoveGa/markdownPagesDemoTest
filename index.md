@@ -5,7 +5,7 @@
 ### and what not
 
 
-[go to another website](https://www.brian.loveless.com)
+[go to another website](https://www.brianloveless.com)
 
 
 
@@ -15,4 +15,9 @@ AS Henry Ford once said :
 > you think you cannot.
 > You are right."
 
-:rocket: | :space_invader: | 🖖| :alien:
+
+
+
+👨‍💻 👩‍💻 
+
+🚀 ​👽​ ​🛸​☄️​ 🖖
